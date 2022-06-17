@@ -2,5 +2,8 @@
 
 Olá! bem vindo a seu livro de receitas. 
 
-- ​
+- ​ Stroonoff de frango
+- Pastel de Carne
+
+
 
